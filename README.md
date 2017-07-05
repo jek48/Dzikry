@@ -1,2 +1,0 @@
-# Dzikry
-Pencari Recehan
